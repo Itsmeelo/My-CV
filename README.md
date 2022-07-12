@@ -1,1 +1,1 @@
-# My-CV/itsmeelo.github.io//My-CV/
+# https://itsmeelo.github.io/My-CV/
